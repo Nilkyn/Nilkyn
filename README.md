@@ -2,6 +2,7 @@
 - 👀 I’m interested in design
 - 🌱 I’m currently learning design
 - 💞️ I love Choso
+- 📫 How to reach me design
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Choso🩸🩸is no more 😭😭😭
 
